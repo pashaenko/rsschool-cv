@@ -5,4 +5,5 @@
 5. Code examples.
 6. No work experience.
 7. Member The Rolling Scopes School.
+8. English level pre-intermediate.
 
